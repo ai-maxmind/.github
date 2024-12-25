@@ -1,3 +1,3 @@
 ## Philosophy
 
-The root of everything comes from within each of those things.
+The root of everything eternal and everlasting originates from within itself.
